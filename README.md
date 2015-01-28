@@ -1,2 +1,2 @@
-# meghanne-dot-come
+# meghanne-dot-com
 MEGHANNE
